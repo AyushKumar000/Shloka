@@ -1,2 +1,2 @@
 # Shloka
-Charge yourself every day with Gita Shloka
+Charge yourself everyday with Gita Shloka
